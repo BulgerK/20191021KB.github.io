@@ -1,0 +1,1 @@
+# komicRival.github.io
